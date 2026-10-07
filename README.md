@@ -1,2 +1,2 @@
-randomly pick 4-8 numbers via clicking the fortune cookies.
+randomly pick 4-8 numbers via clicking the fortune cookies. check current and past results for asia 4D Jackpot, toto, magnum, kuda...
  DISCLAIMER: Entertainment only. Numbers are randomly generated, not connected to any lottery operator, no predictive value. Gambling — play responsibly, 18+. Ads are third-party content, not endorsements.
