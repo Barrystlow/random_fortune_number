@@ -1,0 +1,2 @@
+randomly pick 4-8 numbers via clicking the fortune cookies.
+ DISCLAIMER: Entertainment only. Numbers are randomly generated, not connected to any lottery operator, no predictive value. Gambling — play responsibly, 18+. Ads are third-party content, not endorsements.
